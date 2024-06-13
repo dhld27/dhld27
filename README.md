@@ -11,7 +11,7 @@
 
 - 😄 Pronouns: he/him
 
-- ⚡ Fun fact **I speak 4 languages: Indonesian, English, Japanese, and German!**
+- ⚡ Fun fact **I really love languages and I currently speak 4 languages: Indonesian, English, Japanese, and German!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
