@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Daffa Darwin</h1>
 <h3 align="center">Rookie Programmer with Industrial Engineer Background</h3>
 
-- 🔭 I’m currently working on **Machine Learning**
+- 🔭 I’m currently working on **my Machine Learning Project**
 
 - 🌱 I’m currently learning **Python, SQL, and other tools that makes my skills improved**
 
