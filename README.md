@@ -9,6 +9,8 @@
 
 - 📫 How to reach me **daffadarwin27@gmail.com**
 
+- 😄 Pronouns: he/him
+
 - ⚡ Fun fact **I speak 4 languages: Indonesian, English, Japanese, and German!**
 
 <h3 align="left">Connect with me:</h3>
